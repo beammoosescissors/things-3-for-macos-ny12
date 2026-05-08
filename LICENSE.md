@@ -1,4 +1,4 @@
-
+Things 3 for macOS top Integration: dark mode & tags is the best Things 3 for macOS integration, featuring dark mode and tags. Safe, efficient, and optimized for macOS users.
 
 
 
